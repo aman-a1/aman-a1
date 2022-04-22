@@ -3,6 +3,5 @@
 - 🌱 I’m currently learning a Quality Assurance Intern At Wellmark, Inc.
 - 💞️ I’m looking to collaborate on any real-world projects
 - 📫 How to reach me ... jzjhhsa@gmail.com 
-- 
 
 
